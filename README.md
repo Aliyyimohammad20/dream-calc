@@ -1,3 +1,5 @@
+![1000002271](https://github.com/user-attachments/assets/7757d707-c050-4e9c-833d-d![1000001871](https://github.com/user-attachments/assets/2f6650f2-017f-4331-86bf-5c1406bd0956)
+83d4c006e7a)
 Dream Factory Calculator
 =======================
 
